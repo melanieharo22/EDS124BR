@@ -12,8 +12,10 @@ Module 4 Video: https://youtu.be/GvMz6lo2vNo
 Module 7 Video: https://youtu.be/KieEQr9otIQ
 
 
-
 Module 8 Video: https://youtu.be/amZY5hXifKU
 
 
 Module 9 Video: https://youtu.be/WwXTdQyCEVA
+
+
+Module 12 Video: https://youtu.be/vmEmY_cDolA
