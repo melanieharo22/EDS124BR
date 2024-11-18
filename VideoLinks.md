@@ -21,3 +21,5 @@ Module 9 Video: https://youtu.be/WwXTdQyCEVA
 Module 12 Video: https://youtu.be/vmEmY_cDolA
 
 Module 14 Video: https://youtu.be/XmVPFLFQkkc
+
+Module 17 Video: https://youtu.be/DlqtLYvwrpY
