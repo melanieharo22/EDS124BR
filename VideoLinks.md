@@ -26,3 +26,6 @@ Module 17 Video: https://youtu.be/DlqtLYvwrpY
 
 
 Module 19 Video: https://youtu.be/0vEFYEV_rLA
+
+
+Module 24 Video: https://youtu.be/RMnU-crQqdE
